@@ -1,0 +1,1 @@
+![Cover](https://pixeldepth.net/proboards/book/cover.png)
